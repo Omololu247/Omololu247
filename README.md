@@ -2,7 +2,7 @@
 - 👀 I’m interested in Data analysis
 - 🌱 I’m currently learning Data analysis
 - 💞️ I’m looking to collaborate with mentors and mentees on real life project
-- 📫 How to reach me,hint me through 08070453474
+- 📫 How to reach me,hint me through oluomoatiwaye247@gmail.com 08070453474
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
